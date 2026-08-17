@@ -1,6 +1,6 @@
 ![IMG_1277](https://github.com/user-attachments/assets/f3b6221f-7d32-434e-a34b-eeec2e5a04e5)
 
-$${\color{#0D1117} oooooooooooooooooooooooooooooooooooooooooooooooooo }$$ [![Hits](https://hits.sh/github.com/SweetMeIodys.svg?label=Dinos&color=7b563f&labelColor=2e1817)](https://hits.sh/github.com/SweetMeIodys/) $${\color{#0D1117}oooooooooooooooooooooooooooooooooooooooooooooooooo}$$
+$${\color{#0D1117} oooooooooooooooooooooooooooooooooooooooooooooooooo }$$ [![Hits](https://hits.sh/github.com/SymboliMyFictionalWife.svg?label=Dinos&color=7b563f&labelColor=2e1817)](https://hits.sh/github.com/SweetMeIodys/) $${\color{#0D1117}oooooooooooooooooooooooooooooooooooooooooooooooooo}$$
 
 $${\color{#7A4C43} Cuddles + hugs　\color{#FFE6C4} number 1　\color{#FFE6C4} enjoyer　}$$
 
