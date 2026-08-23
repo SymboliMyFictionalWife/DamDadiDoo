@@ -21,4 +21,4 @@ $${\color{#C56F56} Shelly　\color{#FFE6C4} + 　\color{#492A2C} bassie　\color
 <img width="2732" height="120" alt="Untitled71_20260408155919" src="https://github.com/user-attachments/assets/7f1bb62d-363a-422f-9807-b502a0cf046b" />
 
 
-$${\color{#7A4C43} Notes:　\color{#C56F56} My 　\color{#C56F56} Github 　\color{#C56F56} user 　\color{#C56F56} is 　\color{#C56F56} spelled 　\color{#C56F56} with　\color{#C56F56} an 　\color{#FFE6C4} Cap　\color{#FFE6C4} i 　\color{#C56F56} not　\color{#C56F56} an 　\color{#C56F56} L    }$$
+$${\color{#7A4C43} Notes:　\color{#C56F56} My 　\color{#C56F56} Github 　\color{#C56F56} user 　\color{#C56F56} is 　\color{#C56F56} spelled 　\color{#C56F56} with　\color{#C56F56} an 　\color{#FFE6C4} Cap　\color{#FFE6C4}  Y　\color{#C56F56} not　\color{#C56F56} an 　\color{#C56F56} i    }$$
